@@ -4,3 +4,4 @@
 - amo meu namorado
 - sou estudante
 - trabalho de babá ^_^
+- sou apaixonada pela Disney!
