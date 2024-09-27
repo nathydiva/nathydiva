@@ -7,4 +7,4 @@
 - sou apaixonada pela Disney!
 - amooo roblox <3
 @nathalianagel_ (lá eu pareço ser gente)
-![].(https://tenor.com/pt-BR/view/snoopy-gif-26312082)
+![](https://tenor.com/pt-BR/view/snoopy-gif-26312082)
