@@ -1,11 +1,11 @@
 ## Oii migos, eu me chamo Nathy 👋 ##
-- eu amo strogonoff
+- eu amo strogonoff🤩
 - jogo vôlei quando me da vontade 
-- amo meu namorado
-- sou estudante
+- amo meu namorado:😘
+- sou estudante💥
 - trabalho de babá ^_^
-- sou apaixonada pela Disney!
-- amooo roblox <3
+- sou apaixonada pela Disney!💞
+- amooo roblox 🫶
 - i Love dormir 
 - @nathalianagel_ (lá eu pareço ser gente)
 
